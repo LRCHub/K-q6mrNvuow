@@ -1,0 +1,80 @@
+# Nerissa Ravencroft – Sweetest Scarlet
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:00.74] My sweetest scarlet, my sweetest scarlet
+[00:09.66] My sweetest scarlet, my sweetest scarlet
+[00:29.66] 
+[00:17.78] Lookin' to find the words to tell you
+[00:21.87] This feeling's brand new, tryna make do
+[00:26.44] Still, I can feel my heart is trembling
+[00:29.77] You've got me lost inside the groove
+[00:31.67] Wishing you would make a move
+[00:33.58] 'Cause I can't even look away
+[00:48.08] 
+[00:36.24] Your eyes are shining
+[00:37.63] Still, there's something that you're hiding
+[00:40.28] Won't you tell me with the warmth of your lips?
+[01:03.78] 
+[00:43.96] How you found me was lonely
+[00:46.93] Then you filled my heart up, wholly
+[00:49.07] Let me know, let mе know, let me know
+[00:50.63] What keeps you smilin' by my side
+[00:53.27] If abovе or below me
+[00:55.70] Baby, you're my one and only
+[00:57.98] Let me show, let me show, let me show you
+[00:59.83] I can love you through the night, yeah
+[01:18.83] 
+[01:03.06] My sweetest scarlet, my sweetest scarlet
+[01:06.66] Baby, you're on my mind all of the time
+[01:09.22] Yeah, you plus me, I can get behind
+[01:11.90] My sweetest scarlet, my sweetest scarlet
+[01:15.24] And truly, you got my heart right from the start
+[01:18.02] You fill me with your love
+[01:31.02] 
+[01:22.07] Standing with you beneath the moonlight (You're dazzling)
+[01:26.62] Although it's midnight (You got me babbling)
+[01:28.63] You're shinin' so bright (Glad it's happening)
+[01:31.05] Longing to have you through the cold night
+[01:34.13] I've already fallen victim to your charm
+[01:36.09] Stop delaying, hold me close and warm
+[01:37.99] We'll melt into each other's arms
+[01:54.49] 
+[01:40.79] Don't need permission
+[01:42.06] My decision's already made clear
+[01:44.57] You can feel it from the moment we kissed
+[02:05.07] 
+[01:48.13] How you found me was lonely
+[01:51.34] Then you filled my heart up, wholly
+[01:53.55] Let me know, let me know, let me know
+[01:55.12] What keeps you smilin' by my side
+[01:57.57] If above or below me
+[02:00.19] Baby, you're my one and only
+[02:02.40] Let me show, let me show, let me show you
+[02:04.35] I can love you through the night, yeah
+[02:23.35] 
+[02:07.40] My sweetest scarlet, my sweetest scarlet
+[02:10.47] Ooh-ooh, la-la-la
+[02:16.26] My sweetest scarlet, my sweetest scarlet
+[02:19.38] Just want you to hold me, darling
+[02:35.88] 
+[02:23.27] 'Cause how you found me was lonely
+[02:26.84] Then you filled my heart up, wholly
+[02:29.01] Let me know, let me know, let me know
+[02:30.74] What keeps you smilin' by my side? (My side)
+[02:33.30] If above or below me
+[02:35.72] Baby, you're my one and only (My only, my only)
+[02:37.83] Let me show, let me show, let me show you
+[02:39.95] I can love you through the night, yeah (Whoo!)
+[03:02.95] 
+[02:43.04] My sweetest scarlet, my sweetest scarlet
+[02:46.52] Baby, you're on my mind all of the time
+[02:49.17] Yeah, you plus me, I can get behind
+[02:51.79] My sweetest scarlet, my sweetest scarlet
+[02:55.36] And truly, you got my heart right from the start
+[02:58.09] You fill me with your love
+[03:11.09] 
+[03:00.68] My sweetest scarlet, my sweetest scarlet
+[03:09.66] My sweetest scarlet, my sweetest scarlet
+```
